@@ -1,0 +1,2 @@
+# Freefire
+🤖 SELFBOT-BY:MAX 🤖
